@@ -28,7 +28,7 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 <br>
 
 ## contact
-- ms21520[at]essex[dot]co[dot]uk
+- ms21520@essex.co.uk 
 
 
 
