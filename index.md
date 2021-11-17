@@ -1,19 +1,19 @@
 The information below can be used as a template for your own home page. 
 
-## Krisztian Hofstadter
-**Creative technologist with teaching, technical and artistic skills**  
+## Christine Salaysay
+**Student in Univeristy of Essex**  
 
-Hello! My name is Krisztian Hofstadter, aka tEdör. 
+Hello! My name is Chrsitine Salaysay. 
 
-I am a creative technologist working as a researcher, lecturer, freelancer and artist. Besides working on the Enhancing Audio Description project as a research assistant, my doctoral research developed brain-computer music interfaces for meditation, in which I link neurofeedback to auditory entrainment in generative soundscapes inspired by shamanic journeying. I have also been teaching music technology-related subjects (e.g. sonic art, sensor technology and music for the moving image) as an associate lecturer at the Anglia Ruskin University, Cambridge and the University of Bedfordshire and currently teach a module on sensemaking and digital identities at the School of Philosophy and Arts History at the University of Essex. As a freelancer and artist, I have been producing sound design and music, websites and visual art, including photography and paintings. 
+
 
 Note: I wrote this short bio to go with a recent journal publication where I was co-editor. On my personal website this bio is much shorter. Writing this bio (or abstract) is not easy, most people rewrite it very often before they consider it final for a specific purpose. So should you. Experiment and ask for feedback. 
 
 <br>
 
 ## social media links
-- [LinkedIn](https://www.linkedin.com/in/tedor)
-- [YouTube](https://www.youtube.com/c/Hofst%C3%A4dterKriszti%C3%A1n_tEd%C3%B6r/videos)
+- [LinkedIn](
+- [YouTube](
 
 Note: only link social media that you are happy for people to visit i.e. if your website gives information about a professional service, you should not link it to your social media account which is primarily for your personal use.
 
@@ -82,8 +82,7 @@ My key responsibilities in this role included organising events, engagement with
 ### music technical officer at ARU
 03/2015 – 04/2016 &nbsp; &nbsp; My key responsibilities were maintaining music, computer and audio resources, giving efficient and flexible technical support to students and staff as well as organising academic conferences and events.
 
-### sole trader at Tedör Tea
-2015 – ongoing &nbsp; &nbsp; I have been operating an independent tea company set up in Cambridge that imports health-giving Chinese teas and combines it with a variety of artworks produced by local artists. More info at [http://tedortea.com](http://tedortea.com).
+
 
 <br>
 
