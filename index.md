@@ -12,7 +12,6 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 - [LinkedIn](https://www.linkedin.com/in/christine-salaysay-ba6506225/)
 - [Instagram](https://www.instagram.com/christinetorreliza/)
 
-Note: only link social media that you are happy for people to visit i.e. if your website gives information about a professional service, you should not link it to your social media account which is primarily for your personal use.
 
 <br>
 
