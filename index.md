@@ -20,7 +20,9 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 <br>
 
 ## Work Experience
-
+- 2019 Team Member in a Restaurant
+- 2020 Elderly Care (present)
+- 2021 Support Worker (present)
 <br>
 
 ## My interests
