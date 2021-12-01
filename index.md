@@ -1,5 +1,4 @@
 
-
 ## Christine Salaysay
 **Student in Univeristy of Essex**  
 
@@ -30,7 +29,7 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 ## My interests
 - Travelling 
 - Understanding the behaviour of people (Why they behave the way they do)
-- 
+
 <br>
 
 ## contact
