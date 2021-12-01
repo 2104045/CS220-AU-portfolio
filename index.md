@@ -1,4 +1,4 @@
-The information below can be used as a template for your own home page. 
+
 
 ## Christine Salaysay
 **Student in Univeristy of Essex**  
@@ -16,7 +16,9 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 <br>
 
 ## Education
-
+-  I studied my Secondary grade in the Philippines and moved out at the age of 17 to the United Kingdom to continue my studies. 
+-  A-Levels - Sixth-Form College Colchester
+-  University - currenty studying in University of Essex 
 <br>
 
 ## Work Experience
@@ -26,7 +28,9 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 <br>
 
 ## My interests
-
+- Travelling 
+- Understanding the behaviour of people (Why they behave the way they do)
+- 
 <br>
 
 ## contact
