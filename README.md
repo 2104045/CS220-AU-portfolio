@@ -21,6 +21,8 @@ Hi! My name is Chrsitine Salaysay. I'm a first year student studying Psychology 
 • 03/11/2021 - Set up a linkedIn account 
            - Rough draft of essay
 • 10/11/2021 - Start creating your website
+• 08/12/2021 - 
+
 
 <br>
 
