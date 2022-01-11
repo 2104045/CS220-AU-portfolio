@@ -15,16 +15,26 @@ Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psycho
 <br>
 
 ## Education
--  University - currenty studying in University of Essex 
--   A-Levels - Sixth-Form College Colchester
--  I took my Secondary grade in the Philippines and moved out at the age of 17 to the United Kingdom to continue my studies. 
+| date | degree | institute |
+--- | --- | ---
+|ongoing|**BA** Psychology (Including Placement Year) |UoE, Department of Psychology|
+|2021|A-Levels|Sixth-Form College Colchester|
 
 <br>
 
 ## Work Experience
-- 2021 Support Worker (present)
-- 2020 Elderly Care (present)
-- 2019 Team Member in a Restaurant
+### Part-time jobs
+#### Support Worker
+
+September 2021 - present
+
+#### Elderly Care
+
+October 2020 - present 
+
+#### Team Member in a Restaurant
+
+June 2019 - August 2019
 
 <br>
 
