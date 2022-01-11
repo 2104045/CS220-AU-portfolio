@@ -18,7 +18,7 @@ Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psycho
 | date | degree | institute |
 --- | --- | ---
 |ongoing|**BA** Psychology (Including Placement Year) |UoE, Department of Psychology|
-|2021|A-Levels|Sixth-Form College Colchester|
+|2018-2021|A-Levels (Psychology, Health and Social Care, English Language & Literature|Sixth-Form College Colchester|
 
 <br>
 
@@ -28,9 +28,19 @@ Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psycho
 
 September 2021 - present
 
+Besides being a full-time student, I also hussle on the side. I support clients with learning disabilities. My key responsibilities are providing physical support (personal care and household tasks), emotional support (understanding their needs), encouraging personal growth through interest-driven activities, and partnering with other healthcare professionals. 
+
 #### Elderly Care
 
 October 2020 - present 
+
+Similar to being a support worker, I accommodate two elder people with care companionship, making sure their day-to-day needs are met, such as assisting them in the kitchen whilst they cook, providing personal care (e.g., oral care), and household chores.
+
+#### Cleaning 
+
+October 2020 - present
+
+I am responsible for maintaining a clean and organised home. Through this, I attained good time-management skills, ability to work autonomously, consistency and attentiveness. 
 
 #### Team Member in a Restaurant
 
@@ -46,7 +56,7 @@ June 2019 - August 2019
 
 ## contact
 - ms21520@essex.co.uk 
-
+- salaysaychristine@gmail.com
 
 
 <br><br> 
