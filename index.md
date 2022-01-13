@@ -8,8 +8,7 @@ Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psycho
 <br>
 
 ## Social media links
-- [LinkedIn](https://www.linkedin.com/in/christine-salaysay-ba6506225/)
-- [Instagram](https://www.instagram.com/christinetorreliza/)
+- [Click me!](https://makitin.carrd.co)
 
 
 <br>
