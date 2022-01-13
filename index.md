@@ -48,6 +48,8 @@ June 2019 - August 2019
 <br>
 
 ## My interests
+- Baking
+![Baking](https://ibb.co/1q60Tps)
 - Travelling 
 - Understanding the behaviour of people (Why they behave the way they do)
 
