@@ -44,22 +44,28 @@ I am responsible for maintaining a clean and organised home. Through this, I att
 
 June 2019 - August 2019
 
+
+
 <br>
 
 ## My interests
-- Baking
+# Baking :woman_cook::brown_heart:
 ![res](https://i.ibb.co/gTVrJXv/IMG-9259.jpg)
 ![res](https://i.ibb.co/xmKhb97/AEA6-B413-120-D-4002-90-E7-8590-E4914-A5-B-2.jpg)
-- Travelling 
-- Understanding the behaviour of people (Why they behave the way they do)
+![res](https://i.ibb.co/YcKhTGR/D0-BE7-AA1-B8-BD-429-D-A969-A1-F42-C05826-A.jpg)
+
+# Travelling :heart_on_fire:
+> :round_pushpin: London Liverpool Street
+![res](https://i.ibb.co/mG5WxBM/46948-B7-B-8-EB7-4-B26-BC4-B-57-F43-EA2-D10-E.jpg)
+> :round_pushpin: The Queen's Walk, London
+![res](https://i.ibb.co/kMJ0sn5/5066343-C-A912-4-C5-D-90-DA-3-E24-E4840-E64.jpg)
+> :round_pushpin: Covent Garden, London
+![res](https://i.ibb.co/r5wQ9Pd/IMG-9386.jpg)
+> :round_pushpin: Barcelona, Spain
+![res](https://i.ibb.co/GdTNSK5/IMG-3903.jpg)
 
 <br>
 
 ## contact
 - ms21520@essex.co.uk 
 - salaysaychristine@gmail.com
-
-
-<br><br> 
-
-My full CV can be found [here]
