@@ -62,7 +62,7 @@ I provide customer service, as well as taking phone calls from customers.
 ![res](https://i.ibb.co/kMJ0sn5/5066343-C-A912-4-C5-D-90-DA-3-E24-E4840-E64.jpg)
 
 > :round_pushpin: Covent Garden, London
-![res](https://i.ibb.co/r5wQ9Pd/IMG-9386.jpg)
+![res](https://i.ibb.co/kMJ0sn5/5066343-C-A912-4-C5-D-90-DA-3-E24-E4840-E64.jpg)
 
 > :round_pushpin: Barcelona, Spain
 ![res](https://i.ibb.co/GdTNSK5/IMG-3903.jpg)
