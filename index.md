@@ -7,8 +7,7 @@ Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psycho
 
 <br>
 
-## Social media links
-- [Click me!](https://makitin.carrd.co)
+## [Click me!](https://makitin.carrd.co)
 
 
 <br>
