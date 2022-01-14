@@ -44,7 +44,7 @@ I am responsible for maintaining a clean and organised home. Through this, I att
 
 June 2019 - August 2019
 
-
+I provide customer service, as well as taking phone calls from customers.
 
 <br>
 
