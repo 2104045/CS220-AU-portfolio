@@ -2,7 +2,7 @@
 ## Christine Salaysay
 **Student in Univeristy of Essex**  
 
-Kamusta? My name is Chrsitine Salaysay. I'm a first year student studying Psychology at the University of Essex. I'm currently employed with three part-time jobs. It can be tough at times, but it helped me shape the person I am now. I’m interested in travelling and meeting new people from different walks of life. It gives me purpose and a chance to explore whilst getting to know the world better. I also enjoy posting stuff on internet, specifically instagram. I consider it as my playground to release the creativity inside me. 
+*Kamusta?* My name is Chrsitine Salaysay. I'm a first year student studying Psychology at the University of Essex. I'm currently employed with three part-time jobs. It can be tough at times, but it helped me shape the person I am now. I’m interested in travelling and meeting new people from different walks of life. It gives me purpose and a chance to explore whilst getting to know the world better. I also enjoy posting stuff on internet, specifically instagram. I consider it as my playground to release the creativity inside me. 
 
 
 <br>
@@ -57,10 +57,13 @@ June 2019 - August 2019
 # Travelling :heart_on_fire:
 > :round_pushpin: London Liverpool Street
 ![res](https://i.ibb.co/mG5WxBM/46948-B7-B-8-EB7-4-B26-BC4-B-57-F43-EA2-D10-E.jpg)
+
 > :round_pushpin: The Queen's Walk, London
 ![res](https://i.ibb.co/kMJ0sn5/5066343-C-A912-4-C5-D-90-DA-3-E24-E4840-E64.jpg)
+
 > :round_pushpin: Covent Garden, London
 ![res](https://i.ibb.co/r5wQ9Pd/IMG-9386.jpg)
+
 > :round_pushpin: Barcelona, Spain
 ![res](https://i.ibb.co/GdTNSK5/IMG-3903.jpg)
 
