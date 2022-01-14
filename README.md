@@ -11,6 +11,8 @@ A PDF of my essay will be uploaded to faser.
 
 ## Log
 
+14/01/2022 - Checked Essay and Website for a Peer Assessment 
+
 13/01/2022 - Added Pictures
 
 12/01/2022 - Finalised My Essay
@@ -58,51 +60,7 @@ A PDF of my essay will be uploaded to faser.
 
 <br>
 
-## TODO
-•	Start your IT - use your GitHub
-•	Update your public repository once a week
-•	Start with:
-      Reading the template - adding notes 
-      Start working with my private repository
+## TO DO LIST
+Essay - have it peered-review
 
-•	Go back to main repository and check digital identity - look at the generations; culture differences 
-
-•	Work on your essay - where do I come from? 
-•	Watch videos 
-•	What’s the most interesting part in the video that you’ve moved by
-    -  “This is what I want to explore/articulate”
-
-•	Go through the resources - a guide 
-
-•	Do some research on the internet 
-
-•	Familiarise yourself with the GitHub
-
-<br>
-
-# Additional notes
-•	Portfolio website is like your CV
-•	Website clarification: easiest - short/simple project website / portfolio website - can feature multiple project website 
-•	Use your real name for the website links
-
-# Project management
-e.g. readme file - log in (make you think clearly in a systematic way)
-
-*consider this as a way of working 
-
-Goal: improve your identity use on the web
-show it to people in a concise way 
-
-	•	move to development stage
-	•	gantt chart
-	•	make a plan 
-
--> main tools to use your di-identity essay / website
-
--> look at people’s website, markdown, use pen and paper
-use diff tools so our brain works in a diff way
-
-*physical notebook*
-
--> take diff audios and put them on the software (jingle - sound design)
-
+Website - have it peered-review
