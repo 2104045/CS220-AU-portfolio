@@ -15,7 +15,7 @@ A PDF of my essay will be uploaded to faser.
 
 13/01/2022 - Added Pictures
 
-12/01/2022 - Finalised My Essay
+12/01/2022 - Finalised My Essay (chicago reference)
 
 05/01/2022 - Changed My Template for My Website
 
