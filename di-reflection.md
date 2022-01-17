@@ -21,6 +21,7 @@ See below my future digital identity:
  
 
 By the end of this, I desire to make an institutional impact where I promote my own work on the platform that used to be my visiting mode, e.g., Twitter and TikTok, and inspire people who will eventually create their own business or spread positivity that outweighs the negativity on every social media platform. Finally, creating a blog solely for my home-based business to further expand my potential and share it to the world.  
+
 References
  
 Hofstadter, Krisztian. "CS220-AU-Navigating-The-Digital-World/Digital-Identities.Md At Main · Khofstadter/CS220-AU-Navigating-The-Digital-World." 2021. Github. Accessed on November 16, 2021, https://github.com/khofstadter/CS220-AU-navigating-the-digital-world/blob/main/digital-identities.md
