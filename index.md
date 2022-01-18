@@ -7,16 +7,16 @@
 
 <br>
 
-## [Click me!](https://makitin.carrd.co)
+## [My Cardd Account](https://makitin.carrd.co)
 
 
 <br>
 
 ## Education
-| date | degree | institute |
---- | --- | ---
-|ongoing|**BA** Psychology (Including Placement Year) |UoE, Department of Psychology|
-|2018-2021|A-Levels (Psychology, Health and Social Care, English Language & Literature|Sixth-Form College Colchester|
+ date  degree  institute 
+
+ongoing **BA** Psychology (Including Placement Year) UoE, Department of Psychology 
+2018-2021 A-Levels (Psychology, Health and Social Care, English Language & Literature), Sixth-Form College Colchester
 
 <br>
 
