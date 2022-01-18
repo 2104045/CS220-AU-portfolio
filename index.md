@@ -52,9 +52,10 @@ I provide customer service, as well as taking phone calls from customers.
 ![res](https://i.ibb.co/gTVrJXv/IMG-9259.jpg)
 I took interest in baking when I once craved for a soft and dewy cookie, but couldn't find it elsewhere. Hence, taking the matter in my own hands and started experimenting with the ingredients I had at home and violà! I have my own version of chewy chocolate chip cookies!
 ![res](https://i.ibb.co/xmKhb97/AEA6-B413-120-D-4002-90-E7-8590-E4914-A5-B-2.jpg)
-I decided to give them away to my close friends as Christmas treats and they ended up loving it as much as I do!
+
+I decided to give them away to my close friends as Christmas treats and added a personal touch by printing my face and making a logo with it. I also DIYed those box and they ended up loving it as much as I do!
 ![res](https://i.ibb.co/YcKhTGR/D0-BE7-AA1-B8-BD-429-D-A969-A1-F42-C05826-A.jpg)
-Started as a simple craving, now I'm planning to start a home-baking business out of this.
+It started as a simple craving, now I'm planning to start a home-baking business out of this.
 
 # Travelling :heart_on_fire:
 > :round_pushpin: London Liverpool Street
