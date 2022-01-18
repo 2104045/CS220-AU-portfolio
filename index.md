@@ -55,21 +55,27 @@ I took interest in baking when I once craved for a soft and dewy cookie, but cou
 
 I decided to give them away to my close friends as Christmas treats and added a personal touch by printing my face and making a logo with it. I also DIYed those box and they ended up loving it as much as I do!
 ![res](https://i.ibb.co/YcKhTGR/D0-BE7-AA1-B8-BD-429-D-A969-A1-F42-C05826-A.jpg)
+
 It started as a simple craving, now I'm planning to start a home-baking business out of this.
 
 # Travelling :heart_on_fire:
 > :round_pushpin: London Liverpool Street
 ![res](https://i.ibb.co/mG5WxBM/46948-B7-B-8-EB7-4-B26-BC4-B-57-F43-EA2-D10-E.jpg)
+This particular building is what welcomes me every time I travel to London from Colchester. It gives me everything-seems-possible moment as I walk out of the Liverpool Street station.
 
 
 > :round_pushpin: The Queen's Walk, London
 ![res](https://i.ibb.co/FWpZBZb/IMG-9386.jpg)
+The first spot I visited when I got in the UK for the first time in my entire life. I was 17 then. This wondrous city sparked a magic in me and is still evident in my face as you can see. I think the heavenly pink skies and illuminating city lights supported my argument.
 
 > :round_pushpin: Covent Garden, London
 ![res](https://i.ibb.co/kMJ0sn5/5066343-C-A912-4-C5-D-90-DA-3-E24-E4840-E64.jpg)
 
+I was walking around London and took this whilst waiting for my best friend to come around from her work. This might look a simple portrait to some, but sometimes I find myself taking things for granted. I'm literally walking in the miracle I prayed for. I have nothing but gratitude, hence a photo of a random building in London to show my appreciation and remind myself of where I am in this lifetime.
+
 > :round_pushpin: Barcelona, Spain
 ![res](https://i.ibb.co/GdTNSK5/IMG-3903.jpg)
+"It is said that the Sagrada Familia was built as an atonement for the city's sins. When it is finished, it will be the world's most beautiful apology." Photo taken in 2018 by yours truly.
 
 <br>
 
