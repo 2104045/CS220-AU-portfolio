@@ -13,14 +13,13 @@
 <br>
 
 ## Education
- date  degree  institute 
 
-DATE: ongoing   
-DEGREE: **BA** Psychology (Including Placement Year) 
-INSTITUTE: UoE, Department of Psychology 
+**DATE:** ongoing   
+**DEGREE:** **BA** Psychology (Including Placement Year) 
+**INSTITUTE:** UoE, Department of Psychology 
 
-DATE: 2018-2021 A-Levels (Psychology, Health and Social Care, English Language & Literature)
-INSTITUTE:Sixth-Form College Colchester
+**DATE:** 2018-2021 A-Levels (Psychology, Health and Social Care, English Language & Literature)
+**INSTITUTE:** Sixth-Form College Colchester
 
 <br>
 
